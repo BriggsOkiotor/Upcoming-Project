@@ -20,7 +20,7 @@ Every stream of my songs and every direct contribution (---) to the platform is 
 
 We aren’t just building a fan base; we are engineering an Ecosystem Community for professional and entrepreneurial creatives right here in Ikorodu, lagos Nigeria. We provide the safe space where the hustle, bustle, and frustrating gridlock of Lagos are no longer allowed to silence your passion. We are calling on well meaning individuals to help us build this ecosystem with a promise of accountability as you would see (here)
 
-***Support the Pulse of the professional and entrepreneurial Creative. Stick for News update***
+***Support the Pulse of the professional and entrepreneurial Creative.***
 
-Foma Briggs
+Foma Briggs.
 Originator, Afro925™ Movement
