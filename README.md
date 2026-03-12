@@ -18,7 +18,7 @@ Every stream of my songs and every [direct contribution](https://paystack.shop/p
 
 ![Ikorodu](https://github.com/user-attachments/assets/dead1880-77fe-4cb4-a631-948aa5566cd2)
 
-We aren’t just building a fan base; we are engineering an Ecosystem, a Community for professional and entrepreneurial creatives right here from Ikorodu, lagos Nigeria. We provide the safe space where the hustle, bustle, and frustrating gridlock of Lagos are no longer allowed to silence your passion. We are calling on well meaning individuals to help us build this ecosystem with a [pledge of accountability](https://briggsokiotor.github.io/AFRO925-Transparency-Policy/) 
+We aren’t just building a fan base; we are engineering an Ecosystem, a Community for professional and entrepreneurial creatives right here from Ikorodu, lagos Nigeria. We provide the safe space where the hustle, bustle, and frustrating gridlock of Lagos are no longer allowed to silence your passion. We are calling on well meaning individuals to help us build this ecosystem with a [pledge of accountability](https://briggsokiotor.github.io/AFRO925-Transparency-Policy/) **Join us now,** [Supporthere](https://paystack.shop/pay/Fomabriggs_test_1772099793035)
 
 ***Support the Pulse of the professional and entrepreneurial Creative.***
 
