@@ -12,13 +12,13 @@ Oziza. Dropping soon. Anticipate the heat. 🔥💥✨
 ## The Ikorodu Pilot Project
 > While the music cooks, the movement builds.
 
-We are currently soliciting Movement Capital to launch the inaugural Afro925™ Ikorodu Pilot Project. This is more than a fund, it is the physical blueprint of how you support a professional and entrepreneurial dreamers ready to give their passion a shot.
+We are currently soliciting Movement Capital to launch the inaugural Afro925™ Ikorodu Pilot Project. This is more than a fund, it is the physical blueprint of how you support a professional and entrepreneurial creative ready to give their passion a shot.
 
-Every stream of my songs and every direct contribution (---) to the platform is a brick in the foundation of the Ikorodu Pilot Project. Support the sound, fuel the movement, and claim your seat in the Glass House.
+Every stream of my songs and every [direct contribution](https://paystack.shop/pay/Fomabriggs_test_1772099793035) to the platform is a brick in the foundation of the Ikorodu Pilot Project. Support the sound, fuel the movement, and claim your seat in the Glass House.
 
 ![Ikorodu](https://github.com/user-attachments/assets/dead1880-77fe-4cb4-a631-948aa5566cd2)
 
-We aren’t just building a fan base; we are engineering an Ecosystem Community for professional and entrepreneurial creatives right here in Ikorodu, lagos Nigeria. We provide the safe space where the hustle, bustle, and frustrating gridlock of Lagos are no longer allowed to silence your passion. We are calling on well meaning individuals to help us build this ecosystem with a promise of accountability as you would see (here)
+We aren’t just building a fan base; we are engineering an Ecosystem, a Community for professional and entrepreneurial creatives right here from Ikorodu, lagos Nigeria. We provide the safe space where the hustle, bustle, and frustrating gridlock of Lagos are no longer allowed to silence your passion. We are calling on well meaning individuals to help us build this ecosystem with a [pledge of accountability](https://briggsokiotor.github.io/AFRO925-Transparency-Policy/) 
 
 ***Support the Pulse of the professional and entrepreneurial Creative.***
 
